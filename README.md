@@ -1,0 +1,1 @@
+# ne-kadar-ogrendim-spoiler-inkilap-tarihi-ve-ataturkculuk-32
